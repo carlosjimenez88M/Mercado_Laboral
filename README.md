@@ -1,4 +1,4 @@
-# Entendimiento del mercado
+# Entendimiento del mercado Laboral Latinoamericano
 
 *Ponente:* [Daniel Jiménez M](www.danieljimenezm.com)
 
